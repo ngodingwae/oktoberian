@@ -1,2 +1,1 @@
 # oktoberian
-hasil dari dokumentasi
