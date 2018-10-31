@@ -1,1 +1,1 @@
-# oktoberian hore bagus
+# oktoberian
